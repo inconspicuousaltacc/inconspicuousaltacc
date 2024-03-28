@@ -1,2 +1,1 @@
-BROTH GANG, we'll destroy this Tournament! @RCCH @snorting's alt @🇵🇸🇵🇸 YOYO 🇵🇸🇵🇸 @Atreşin @Robomaster18 @dormant @toast burned @SkyRashidi @211A @Senator Gibusweak#1555 @Leaf @StardustSpy#7172 @Nerf Farm :FeelsBanMan: @Ghrk!!! @KEVINNGW808#5573 @cuni @wESLEU_T#8715 @adrain @Shadoww#5651 @BADorni @bobert @CardShark73 @Cyborg Take 3 @DimaLli#2939 @Fusion Break @IcyyyyInferno @adil @hccrstudying987 @lcst @NeverBean @Tired @OAFish @Below Average PVZH Player @The Jerryckstacher @Gugs1504#9961 @Icicle @Astro @FebrezeAirFresh @happy's room @Tbonegaming344 @TryHard @Unblanken @Emmet Drip 😬👌 @Willy @Broth sweeper @๖ۣ🌺Hydreigon > Latias🌺༺
-remind creeperblade to j in 1 hour
+
